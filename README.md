@@ -1,4 +1,4 @@
-## Hi there， I'm Huidi 👋
+## Hi there， I'm Huidi ：）
 
 
 ### My Featured Projects
